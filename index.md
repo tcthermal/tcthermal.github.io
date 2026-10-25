@@ -1,5 +1,5 @@
 # TC Thermal
-Professional Thermal Imaging Services in New Mexico
+Professional Thermal Imaging Services in Oregon
 
 [Home](index.md) | [Services](services.md) | [IEC 62446-3](iec-62446-3.md) | [Portfolio](portfolio.md) | [Contact](contact.md)
 
