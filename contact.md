@@ -8,7 +8,7 @@
 
 **Email:** your-email-here  
 **Phone:** your-phone-here  
-**Service Area:** Farmington, NM and surrounding regions
+**Service Area:** Central Oregon and surrounding regions
 
 We provide residential, commercial, and industrial thermal imaging services.
 
