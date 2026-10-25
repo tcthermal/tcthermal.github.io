@@ -6,8 +6,8 @@
 
 ## Schedule an Inspection
 
-**Email:** your-email-here  
-**Phone:** your-phone-here  
+**Email:** thorin.tcthermal@gmail.com  
+**Phone:** 650-996-6065  
 **Service Area:** Central Oregon and surrounding regions
 
 We provide residential, commercial, and industrial thermal imaging services.
